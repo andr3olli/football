@@ -1,0 +1,3 @@
+## XG-Wert
+Erwartete Tore
+
